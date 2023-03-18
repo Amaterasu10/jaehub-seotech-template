@@ -1,0 +1,1 @@
+# jaehub-seotech-template
